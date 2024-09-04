@@ -1,3 +1,8 @@
+
+Game: MuOnline Dark Epoch
+Class Change Quest Line is Here (Level 120)
+Gameplay Walkthrough
+
 --------------------------------------------------------------------------------------------------------
 
 Q: What abilities do you need to become a true warrior?
